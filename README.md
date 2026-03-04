@@ -2,7 +2,7 @@
 
 **`Analista e Desenvolvedor de Sistemas`**
 
-Me chamo Yago Lopes Miranda, tenho 21 anos e sou natural de Belo Horizonte. Concluí o ensino médio no IFMG, com o curso técnico em informática. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na PUCMG. Sou apaixonado por tecnologia.
+Me chamo Yago Lopes Miranda, tenho 21 anos e sou natural de Belo Horizonte. Concluí o ensino médio no IFMG, com o curso técnico em informática. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na PUCMG. Sou apaixonado por tecnologia, e meu perfil do Instagram é "[yago_miranda1](https://www.instagram.com/yago_miranda1/)".
 
 ---
 
